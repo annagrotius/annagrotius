@@ -2,7 +2,7 @@
 
 Hi, I'm Anna. 
 
-After facing unemployment for a few months, I finally decided that submitting my very qualified resume to job applications is not enough, and that it is time to showcase my skills in a more tangible way! This is also a great opportunity for me to seize the day with learning. We all know that documenting and doing things is the best way to learn, and I a excited to finally start this!
+After facing unemployment for a few months, I finally decided that submitting my very qualified resume to job applications is not enough, and that it is time to showcase my skills in a more tangible way! This is also a great opportunity for me to seize the day with learning. We all know that documenting and doing things is the best way to learn, and I am excited to finally start this!
 
 TL;DR: I am not a coder, but I am someone who _appreciates_ code! Who doesn't in this day and age? Without, literally where would we be. Maybe it would be for the best? But I think not. I am a tech and, especially, an AI enthusiast who appreciates using Python and SQL to get shit done. 
 
