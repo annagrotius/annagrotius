@@ -15,8 +15,6 @@ Throughtout my varied, non-conventional career path thus far, I have experience 
 As I mentioned above, I am taking the next steps for my career and am trying to hone in on my data analysis and AI skills. My goal is to be able to collaborate on teams at forward-thinking AI companies, where I can bring my passion for developing ethical AI. 
 
 ### Extra
-💬 Ask me about... being resourceful with ingredients in your kitchen.
-
 📫 How to reach me: anna.mc.degroot@gmail.com
 
 😄 Pronouns: She/her
