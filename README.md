@@ -14,6 +14,9 @@ As I mentioned above, I am taking the next steps for my career and am trying to 
 
 ### Extra
 💬 Ask me about... being resourceful with ingredients in your kitchen.
+
 📫 How to reach me: anna.mc.degroot@gmail.com
+
 😄 Pronouns: She/her
+
 ⚡ Fun fact: I am going to be a colunteer at the 2024 Paris Olympics!
